@@ -1,4 +1,4 @@
-##_where I go_
+## Where I go
 
 I am one who likes to travel and experience new things when i have the 
 chance/oppurtunity. I like to think life is all about experiences, the 
