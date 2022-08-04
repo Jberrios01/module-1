@@ -13,6 +13,6 @@ least)i go where i am going to grow not shrink!
 
 This file can be found here /user/student/Jorthegreat/whereigo
 
-The precious file is here /user/student/Jorthegreat
+The previous file is here /user/student/Jorthegreat
 
 The next Directory can be found here /user/student/Jorthegreat/whatiknow
