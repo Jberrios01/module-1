@@ -9,7 +9,14 @@ surpass the ones with natural talent's. So as long as you put the work in
 the impossible will turn into possible.
 
 I like to think out the box with this question, and going to let you leave 
-with this We are not the only living species in the galaxy. 
+with this We are not the only living species in the galaxy so anything is 
+possible.
+
+This file can be found /Users/student/jorthegreat/whatspos
+
+The previous Directory can be found at /Users/student/jorthegreat
+
+The next directory can be found /Uesrs/student/jorthegreat/whatsimp 
 
 
 

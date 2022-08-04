@@ -1,4 +1,4 @@
-##_What is important_
+## What is important
 
 I find importance in a lot of things in life, even what other people might 
 say aren't that important. A couple key things that is important to me are 
